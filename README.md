@@ -57,7 +57,7 @@ This project is licensed under the MIT License. Feel free to use and modify it f
 Feel free to reach out to me via [LinkedIn](https://www.linkedin.com/in/naveen-kumar-d-6a18342b4) or [Email](mailto:naveendece85@gmail.com) if you have any questions or opportunities.
 
 - **GitHub**: [Naveen-website](https://naveenkumar6767.github.io/Naveen-Website/)
-- **Email**: [thamarair65@gmail.com](mailto:naveendece85@gmail.com)
+- **Email**: [naveendece85@gmail.com](mailto:naveendece85@gmail.com)
 - **LinkedIn**: [NAVEEN KUMAR](www.linkedin.com/in/naveen-kumar-d-6a18342b4)
 - **Phone**: [+91 6379503988](tel:+918438785779)
 - **WhatsApp**: [Send a Message](https://wa.me/916379503988?text=Hai%20How%20Are%20You%20❤️💓)
